@@ -1,1 +1,1 @@
-Scratch of a work project.
+Scratch of a work project. Pantry.
